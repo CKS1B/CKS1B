@@ -1,1 +1,1 @@
-# Nude-mouse-tumorigenicity-assay
+# Nude mouse tumorigenicity assay
